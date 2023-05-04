@@ -1,8 +1,8 @@
 ![](https://cdn.discordapp.com/attachments/1083474289388425288/1086356256568123442/cooltalkingcomputer.gif)
 
-![](https://cdn.discordapp.com/attachments/1083474289388425288/1086356284997124127/STARS.gif) **[BENNY!]()** ![](https://cdn.discordapp.com/attachments/1083474289388425288/1086356284997124127/STARS.gif)
+**BENNY!**
 
-`any pronouns`
+[any pronouns](https://en.pronouns.page/@benthespaceman)
 
 minor , uzbek ukranian , unlabeled 
 
